@@ -1,0 +1,4 @@
+- Hi :),
+- I am Talha. I just started learning Programming. Right now it's difficult but it will get easy with time, I hope ;(.
+- Trying to learn something. And hopeful to teach something.
+- Wish me Luck <*u*>!
